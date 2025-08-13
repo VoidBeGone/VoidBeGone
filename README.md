@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎯 I’m currently working on<br>My own personal website<br><br>🤝= I’m currently learning<br>NEW PROJECTS<br><br>💬 Ask me about<br>Sports, coding, and life<br><br>⚡ Fun fact<br>I learn really fast
+🎯 I’m currently working on<br>My own personal website<br><br>🤝 I’m currently learning<br>NEW PROJECTS<br><br>💬 Ask me about<br>Sports, coding, and life<br><br>⚡ Fun fact<br>I learn really fast
 
 
 ## 🌐 Socials:
